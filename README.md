@@ -7,6 +7,9 @@ Java-Android (Mobile bots)*
 
 *There is the most difficult way to work with as many webs has js difficulties
 
+---------------------------------------------------------------------------------------------------------------------------------
+SPAM FOR CONTRIBUTING
+
 If anyone wants to contribute I offer a way to do it free:
 
 Download brave Browser with that link and use id at least for 30 days
