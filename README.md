@@ -27,4 +27,4 @@ Register in a PTC as my referee:
   
   - https://www.ptcshare.com/ref/alvaca100
   
-  - https://www.neobux.com/imagens/banner9.gif
+  - https://www.neobux.com/?r=alvaca100
